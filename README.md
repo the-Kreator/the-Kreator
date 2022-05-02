@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @the-Kreator
+- 👋 Hi, I’m JAMES
 - 👀 I’m interested in MANGA, ART, MOVIES AND TECH 
 - - 🌱 I’m currently learning ... CODING 
 - 💞️ I’m looking to collaborate on EVERYTHING IF POSSIBLE 
